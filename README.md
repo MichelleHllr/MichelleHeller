@@ -1,6 +1,3 @@
-# MichelleHeller
+# Michelle Heller
 
-# Cidade natal joinville
-
-# Cidade natal: Worms/Alemanha
 
